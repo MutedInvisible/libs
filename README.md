@@ -5,3 +5,6 @@ https://drive.google.com/drive/folders/140G8hz9eguJ2RJabl0hMVuZo3xD2JRFS?usp=sha
 https://drive.google.com/drive/folders/16iwSozEtmpxVAvks_m1sHHNnKZCCsWoX?usp=sharing
 eng:
 https://drive.google.com/drive/folders/1Sj55eYSGVtoXH9AvM_hLMNZdh6gorV4G?usp=sharing
+
+engnewgng:
+https://drive.google.com/drive/folders/1oWR2Tujh1dzHG6U6iLGEkkGN2mhWbk4X?dmr=1&ec=wgc-drive-globalnav-goto
