@@ -24,3 +24,6 @@ https://drive.google.com/drive/u/0/folders/1KgyUvWsvtF4w1vYimFXO2rc72anvhVaa
 
 vids and ppt:
 https://drive.google.com/drive/folders/1Uje0Arh4rgTgk5sUFxkqsroWpMXzPd8r
+
+helpmme:
+https://open.spotify.com/playlist/4OJRYBFtM1hdCGY6IqCC0I?si=62f07476d3914c6b
