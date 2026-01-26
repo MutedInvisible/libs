@@ -21,3 +21,6 @@ https://drive.google.com/drive/folders/1kHDyL7vMMrejtlvFOJZsF0ctcmnMuDXj?usp=sha
 
 to pimp a butterfly:
 https://drive.google.com/drive/u/0/folders/1KgyUvWsvtF4w1vYimFXO2rc72anvhVaa
+
+vids and ppt:
+https://drive.google.com/drive/folders/1Uje0Arh4rgTgk5sUFxkqsroWpMXzPd8r
