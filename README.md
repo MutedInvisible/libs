@@ -30,3 +30,6 @@ https://open.spotify.com/playlist/4OJRYBFtM1hdCGY6IqCC0I?si=62f07476d3914c6b
 
 whatcomputergeekhigh:
 https://drive.google.com/drive/folders/1AZikKjM84Z8B5BRtT1Xw62e4Ig3hbmIY?usp=sharing
+
+syponoumitsabouttombe1am:
+https://drive.google.com/drive/folders/1AdJi-PF4leny7mqi9IMJRH_QKKuhOBbk
